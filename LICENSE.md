@@ -1,4 +1,4 @@
-# 
+# advanced Adobe Audition for macOS Addon | collaboration-tools + slow-motion is the best Adobe Audition for macOS addon, featuring collaboration-tools and slow-motion. Safe,
 
 
 
